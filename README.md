@@ -1,4 +1,4 @@
-Physcological report shows data correlation with Dyscalcula, but I can very much Calcula 😁. Just don't ask me to solve any word problems, where they take the scenic route to telling you what the problem is.
+Physcological report shows data correlation with Dyscalculia, but I can very much Calculia 😁. Just don't ask me to solve any word problems, where they take the scenic route to telling you what the problem is.
 
 Interested in Games Dev and Minecraft modding
 
